@@ -16,7 +16,7 @@ Nom : TAUMAU
 Prénom : Tinihau  
 🎂 : 01 Décembre 2006  
 📱 : 06451256875  
-📧 : taumautinihau@gmail.com 
+📧 : kaluafaie@gmail.com 
 🏍️ : Permis en cours...
 
 ## Formation et Diplômes
